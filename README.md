@@ -46,6 +46,11 @@ myślałem / myśląc, że ciemność nie jest (oddzielna) ot gdzieś tam
 ona jest w ludziach, ich sercach 
 i (nie) (wciąż) chce rozbłysnąć
 
+no bo chyba nie ma znaczenia
+czy ktoś splunie ci w twarz czy szarpnie za wolę
+jedno i drugie to drenaż na czas
+stracisz przez to siły umysłu
+
 tam w środku czujesz złość
 bezsilności etos ma już dość słabości 
 los przecina żyły na chodniku
