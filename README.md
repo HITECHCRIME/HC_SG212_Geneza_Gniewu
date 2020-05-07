@@ -60,7 +60,7 @@ gdy co druga rodzina to przemoc
 dla własnej potrzeby problemu
 uczyłem w ciemności jednego 
 myślałem, że ciemność nie jest ot gdzieś tam
-ona jest w ludziach, ich sercach i wciąż chce rozbłysnąć
+ona jest w ludziach, ich sercach i bardzo chce rozbłysnąć
 
 ```
 
