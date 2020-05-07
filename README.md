@@ -40,6 +40,12 @@ uczyłem w ciemności jednego (Chodziłem w ciemności na ślepych)
 myślałem / myśląc, że ciemność nie jest (oddzielna) ot gdzieś tam
 ona jest w ludziach, ich sercach i (nie) (wciąż) chce rozbłysnąć
 
+tam w środku czujesz złość
+bezsilności etos ma już dość słabości 
+los przecina żyły na chodniku
+chyba masz tu znowu coś co niby chciałeś mieć na starość
+ale wiesz że to się nie skończy
+
 ---
 
 tak wiem, wy wszyscy twierdzicie
