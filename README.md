@@ -25,20 +25,20 @@ Deys type beat (nie wytlumaczysz tempo)
 tak wiem, wy wszyscy twierdzicie
 że rap z ulicy to z duszy (ale) / serca
 jedyne co tutaj mnie trzyma
-to krew rozerwanego serca                     /// Porwanego serca / ropiejącego serca ( / rozerwanej duszy)
+ krew rozerwanego serca                     /// Porwanego serca / ropiejącego serca ( / rozerwanej duszy)
 
 emocje nie muszą być piękne
 wspomnienia mi szepczą frazesy
 napięcie i burdel w kognicji
 to są dopiero mordercy
 
-ta, moim domem nie była ulica bo ulicę już miałem wewnątrz umysłu
+ta, moim domem nie była ulica (bo) ulicę już miałem tu wewnątrz umysłu
 mentalne (Fatalne) rozkminy są zbędne gdy co druga rodzina to przemoc              /// (jedyna rodzina to przemoc)
 
-Dla własnej potrzeby problemu
-Uczyłem w ciemności jednego (Chodziłem w ciemności na ślepych)
-Myślałem, że ciemność nie jest (oddzielna) ot gdzieś tam
-Ona jest w ludziach, ich sercach i (nie) chce rozbłysnąć
+dla własnej potrzeby problemu
+uczyłem w ciemności jednego (Chodziłem w ciemności na ślepych)
+myślałem / myśląc, że ciemność nie jest (oddzielna) ot gdzieś tam
+ona jest w ludziach, ich sercach i (nie) chce rozbłysnąć
 
 
 ```
