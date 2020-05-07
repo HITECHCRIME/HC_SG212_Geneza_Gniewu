@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Geneza Gniewu
 
 **Listen now:** 
 
@@ -8,11 +8,11 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Geneza Gniewu / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:** MOTHNODE / **Lyrics:** MOTHNODE
 
-> **Beat:**
+> **Beat:** X
 
 > **Narrative Design:**
 
@@ -22,6 +22,29 @@ Description.
 ## Lyrics
 
 ```
+tak wiem, wy wszyscy twierdzicie
+Że rap z ulicy to z serca
+Ale jedyne co tutaj mnie trzyma
+To krew 
+Porwanego serca
+ropiejącego serca (rozerwanego / rozerwanej duszy)
+
+Emocje nie muszą być piękne
+Wspomnienia (mi) szepczą frazesy
+Napięcie i burdel w kognicji
+To są dopiero mordercy
+
+Ta, moim domem nie była ulica (Bo) 
+ulicę tu miałem wewnątrz umysłu
+Mentalne (Fatalne) rozkminy są zbędne
+Gdy jedyna rodzina to przemoc 
+
+Dla własnej potrzeby problemu
+Uczyłem w ciemności jednego (Chodziłem w ciemności na ślepych)
+Myślałem, że ciemność nie jest (oddzielna) ot gdzieś tam
+Ona jest w ludziach, ich sercach i (nie) chce rozbłysnąć
+
+
 
 
 ```
