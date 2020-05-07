@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Description.
+Deys type beat (nie wytlumaczysz tempo)
 
 > **Title:** Geneza Gniewu / **Featuring:** MOTHNODE
 
@@ -23,28 +23,22 @@ Description.
 
 ```
 tak wiem, wy wszyscy twierdzicie
-Że rap z ulicy to z serca
-Ale jedyne co tutaj mnie trzyma
-To krew 
-Porwanego serca
-ropiejącego serca (rozerwanego / rozerwanej duszy)
+że rap z ulicy to z duszy (ale) / serca
+jedyne co tutaj mnie trzyma
+to krew rozerwanego serca                     /// Porwanego serca / ropiejącego serca ( / rozerwanej duszy)
 
-Emocje nie muszą być piękne
-Wspomnienia (mi) szepczą frazesy
-Napięcie i burdel w kognicji
-To są dopiero mordercy
+emocje nie muszą być piękne
+wspomnienia mi szepczą frazesy
+napięcie i burdel w kognicji
+to są dopiero mordercy
 
-Ta, moim domem nie była ulica (Bo) 
-ulicę tu miałem wewnątrz umysłu
-Mentalne (Fatalne) rozkminy są zbędne
-Gdy jedyna rodzina to przemoc 
+ta, moim domem nie była ulica bo ulicę już miałem wewnątrz umysłu
+mentalne (Fatalne) rozkminy są zbędne gdy co druga rodzina to przemoc              /// (jedyna rodzina to przemoc)
 
 Dla własnej potrzeby problemu
 Uczyłem w ciemności jednego (Chodziłem w ciemności na ślepych)
 Myślałem, że ciemność nie jest (oddzielna) ot gdzieś tam
 Ona jest w ludziach, ich sercach i (nie) chce rozbłysnąć
-
-
 
 
 ```
