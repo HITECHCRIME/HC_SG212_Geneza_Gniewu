@@ -40,6 +40,27 @@ uczyłem w ciemności jednego (Chodziłem w ciemności na ślepych)
 myślałem / myśląc, że ciemność nie jest (oddzielna) ot gdzieś tam
 ona jest w ludziach, ich sercach i (nie) chce rozbłysnąć
 
+---
+
+tak wiem, wy wszyscy twierdzicie
+że rap z ulicy to z serca
+jedyne co tutaj mnie trzyma
+(to) krew rozerwanego serca                    
+
+emocje nie muszą być piękne
+wspomnienia mi szepczą frazesy
+napięcie i burdel w kognicji
+to są dopiero mordercy
+
+ta, moim domem nie była ulica 
+ulicę już miałem tu wewnątrz umysłu
+mentalne rozkminy są zbędne 
+gdy co druga rodzina to przemoc       
+
+dla własnej potrzeby problemu
+uczyłem w ciemności jednego 
+myślałem, że ciemność nie jest ot gdzieś tam
+ona jest w ludziach, ich sercach i wciąż chce rozbłysnąć
 
 ```
 
