@@ -25,7 +25,7 @@ Deys type beat (nie wytlumaczysz tempo)
 tak wiem, wy wszyscy twierdzicie
 że rap z ulicy to z duszy (ale) / serca
 jedyne co tutaj mnie trzyma
- krew rozerwanego serca                     /// Porwanego serca / ropiejącego serca ( / rozerwanej duszy)
+(to) krew rozerwanego serca                     /// Porwanego serca / ropiejącego serca ( / rozerwanej duszy)
 
 emocje nie muszą być piękne
 wspomnienia mi szepczą frazesy
