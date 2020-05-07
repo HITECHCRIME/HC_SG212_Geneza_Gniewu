@@ -38,7 +38,7 @@ mentalne (Fatalne) rozkminy są zbędne gdy co druga rodzina to przemoc         
 dla własnej potrzeby problemu
 uczyłem w ciemności jednego (Chodziłem w ciemności na ślepych)
 myślałem / myśląc, że ciemność nie jest (oddzielna) ot gdzieś tam
-ona jest w ludziach, ich sercach i (nie) chce rozbłysnąć
+ona jest w ludziach, ich sercach i (nie) (wciąż) chce rozbłysnąć
 
 ---
 
