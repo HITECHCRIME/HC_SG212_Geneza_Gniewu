@@ -50,7 +50,7 @@ tam w środku czujesz złość
 bezsilności etos ma już dość słabości 
 los przecina żyły na chodniku
 chyba masz tu znowu coś co niby chciałeś (mieć na starość)
-ale wiesz że to się nie skończy
+ale wiesz że to się nie skończy na odwyku
 
 [CHORUS]
 tak wiem, wy wszyscy twierdzicie
