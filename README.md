@@ -76,7 +76,7 @@ jedyne co tutaj mnie trzyma
 (to) krew rozerwanego serca                    
 
 emocje nie muszą być piękne
-wspomnienia mi szepczą frazesy
+wspomnienia szepczą frazesy
 napięcie i burdel w kognicji
 to są dopiero mordercy
 
